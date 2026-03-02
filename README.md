@@ -1,13 +1,23 @@
 ## dworak
+
 ⋆༺𓆩☠︎︎𓆪༻⋆⋆༺𓆩☠︎︎𓆪༻⋆⋆༺𓆩☠︎︎𓆪༻⋆⋆༺𓆩☠︎︎𓆪༻⋆⋆༺𓆩☠︎︎𓆪༻⋆
+
 📒🤟𝕹𝕺𝕸𝕰
+
 # Gustavo Dworak
+
 ⋆༺𓆩☠︎︎𓆪༻⋆⋆༺𓆩☠︎︎𓆪༻⋆v⋆༺𓆩☠︎︎𓆪༻⋆⋆༺𓆩☠︎︎𓆪༻⋆⋆༺𓆩☠︎︎𓆪༻⋆
+
 📒🤟𝕮𝖀𝕽𝕺𝕾
+
 # Desenvolvimento de sisteman integrado
+
 ⋆༺𓆩☠︎︎𓆪༻⋆⋆༺𓆩☠︎︎𓆪༻⋆⋆༺𓆩☠︎︎𓆪༻⋆⋆༺𓆩☠︎︎𓆪༻⋆⋆༺𓆩☠︎︎𓆪༻⋆
+
 📒🤟𝖍𝖔𝖇𝖇𝖞
+
 # Tocar violao
+
 ⋆༺𓆩☠︎︎𓆪༻⋆⋆༺𓆩☠︎︎𓆪༻⋆⋆༺𓆩☠︎︎𓆪༻⋆⋆༺𓆩☠︎︎𓆪༻⋆⋆༺𓆩☠︎︎𓆪༻⋆
 
 <img width="225" height="225" alt="image" src="https://github.com/user-attachments/assets/571883fa-a785-4789-a1c6-f982ad56fe50" />
